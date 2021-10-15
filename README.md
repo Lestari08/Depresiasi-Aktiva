@@ -1,0 +1,1 @@
+# Depresiasi-Aktiva
